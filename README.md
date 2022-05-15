@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mariano.eq@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hVh3yod5SrJbyI_bXffnn1hCzrrYHSbr/view?usp=sharing](https://drive.google.com/file/d/1hVh3yod5SrJbyI_bXffnn1hCzrrYHSbr/view?usp=sharing)
+- 📄 Know about my experiences "https://drive.google.com/file/d/1Rfr_N-rgDcYV6bU4md0GaSa4lqhk620q/view?usp=sharing"
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
