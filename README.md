@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Mariano</h1>
+<h1 align="center">Hi 👋,   I'm Mariano</h1>
 <h3 align="center">A highly curious person who puts all his curiosity into programming.</h3>
 
 - 🔭 I’m currently working on **real-world projects**
