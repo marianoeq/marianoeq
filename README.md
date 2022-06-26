@@ -7,8 +7,6 @@
 
 - 👯 I’m looking to collaborate on **any project that wakes up my interest**
 
-- 👨‍💻 All of my projects are available at [https://github.com/marianoeq](https://github.com/marianoeq)
-
 - 📫 How to reach me **mariano.eq@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Rfr_N-rgDcYV6bU4md0GaSa4lqhk620q/view?usp=sharing](https://drive.google.com/file/d/1HEPup1P_VNZv4jUAAMci1ri4mMlgsIL3/view?usp=sharing)
