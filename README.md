@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mariano.eq@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1ZFzXzrZNE0JPFBZUIutZDaj836s5RHQa/view?usp=sharing
+- 📄 Know about my experiences https://drive.google.com/file/d/18Xoq3BFvAzVpcZ38Tg95f3w4mhae5Orl/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
